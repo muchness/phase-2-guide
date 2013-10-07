@@ -1,1 +1,0 @@
-we're on a road to paradise
